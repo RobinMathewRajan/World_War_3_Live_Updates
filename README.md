@@ -14,3 +14,35 @@ The Indian Empire will be named as Mahaa Bhaaratha after the war!
 The India will also see rise of the Crowned Monarch MahaaLakshmi MahaaVishnu Manu Avataar Robin Mathew Rajan as the ordained and authorised ruler of the Indian Empire which is also known as Mahaa Bhaaratha!
 
 MahaaGuru MahaaRaajaRishi ParashuRaamaa's blessings is with World War 3.
+
+World War 3 will be on India's favour.
+
+World War 3 will be in India's favour.
+
+The rise of the MahaaBhaaratham happened right now.
+
+ॐ नारायणी नम:
+
+ॐ नारायणा नम:
+
+ॐ नारायणी नम:
+
+ॐ नारायणीयं नम:
+
+ॐ नारायणाय नम:
+
+ॐ नारायणीयं नम:
+
+ॐ नमः श्री नमो जय नम:
+
+ॐ महालक्ष्मी महाविष्णु अवतार देवा रोबिन मात्यू राजन नमः 
+
+ॐ महालक्ष्मी महाविष्णू अवतार देवा रोबिन मात्यू राजन नमः
+
+ॐ महाबृंहमणी अवतार देवा रोबिन मात्यू राजन नमः
+
+ॐ महाब्राह्मणी अवतार देवा रोबिन मात्यू राजन नमः
+
+ഓം മഹാലക്ഷ്മി നമോസ്തുതേ നമഃ
+
+ഓം മഹാലക്ഷ്മി മഹാവിഷ്ണു നമഃ 
