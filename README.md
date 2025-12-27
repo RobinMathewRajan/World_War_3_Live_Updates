@@ -1,4 +1,4 @@
-# World_War_3_Live_Updates
+# World War 3 Live Updates
 
 India is on crosshairs!
 
