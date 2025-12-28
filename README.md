@@ -15,6 +15,10 @@ The India will also see rise of the Crowned Monarch MahaaLakshmi MahaaVishnu Man
 
 MahaaGuru MahaaRaajaRishi ParashuRaamaa's blessings is with World War 3.
 
+World War 3 will be conducted in India.
+
+World War 3 will be conducted inside India.
+
 World War 3 will be on India's favour.
 
 World War 3 will be in India's favour.
